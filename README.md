@@ -1,1 +1,1 @@
-# Appunti_Informatic
+# Appunti_Informatica
